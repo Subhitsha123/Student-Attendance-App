@@ -1,1 +1,0 @@
-This is the recipe of Caprese Pasta Salad.
